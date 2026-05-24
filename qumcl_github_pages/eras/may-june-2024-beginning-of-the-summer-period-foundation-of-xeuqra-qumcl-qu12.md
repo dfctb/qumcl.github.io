@@ -1,6 +1,0 @@
-# May--June 2024: Beginning of the summer period — foundation of Xeuqra, qumcl, qu12
-
-If previous periods were important in Gerasenko's discography, each month saw his sound improve further, demonstrating how rapidly his production evolved over a short time. Due to his illness, Gerasenko never remained idle creatively. Between February and May 2024, he recorded approximately 180–200 tracks, reflecting his remarkable productivity.
-
-He later commented: *"I was actually the most productive musician in my room in 2024, lol! Joking aside, 2024 was a significant year in terms of bright productivity and the rapid evolution of my sound. I quickly understood how Ableton works, how sound works, how synthesisers work. I immersed myself more and more in the musical environment, and I had a requirement for myself: at the beginning of the year, I made 2–3 tracks every day, sometimes giving myself days off, but only towards the end of May did I get tired of such strict demands on myself."*
-
